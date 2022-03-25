@@ -10,3 +10,5 @@ Please keep changes to this file neat and tidy like the current layout I have al
 [2] Gotta Go Home by Boney M. [Listen on Spotify](https://open.spotify.com/track/4MvGHDenL4t9JW1RHB4rK2?si=094dbad95f3c4601) or [Listen on YouTube](https://www.youtube.com/watch?v=Xg2oJeAPO5Y)
 
 [3] Moskau by Dschinghis Khan [Listen on Spotify](https://open.spotify.com/track/0cwEvwz7syhgHKXX1z4puc?si=d7763bc30bed4644) or [Listen on YouTube](https://www.youtube.com/watch?v=8PvOSp4mxn0)
+
+[4] In The Navy by Village People [Listen on Spotify](https://open.spotify.com/track/4mjFMScEvHeM72791mXRCW?si=97c1d2cbdc254112) or [Listen on YouTube](https://www.youtube.com/watch?v=VU5ih1ySdQM)
